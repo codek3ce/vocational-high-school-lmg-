@@ -1,0 +1,1 @@
+# vocational-high-school-lmg-
